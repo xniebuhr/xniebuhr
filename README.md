@@ -34,4 +34,4 @@ I might seem shy or quiet when you first meet me, but once I get to know you, I 
 ### Fun facts about me
 * In high school, I was the top viola player in the state and made All-State Orchestra all four years. I don't play as much now, but I still like to play piano and write music.
 * My orchestra teacher asked me to play at his wedding
-* I might not like it, but I'm a bass singer and have yet to meet someone with a lower range than mine
+* I'm a bass singer and have yet to meet someone with a lower range than mine
